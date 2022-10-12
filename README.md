@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **raghavy.m.n@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
